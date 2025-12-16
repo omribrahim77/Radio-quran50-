@@ -1,1 +1,1 @@
-https://omribrahim2011.github.io/Radio-Quran50/
+https://omribrahim77.github.io/Radio-Quran50/
